@@ -54,6 +54,7 @@ Extands  Isaiah 27:1
 
 [Alt text](img/fall.jpg)
 
+
 were the offspring of the "sons of God" and the "daughters of men" before the Deluge, according to Genesis 6:1-4.
 
 Extends Genesis 6:4
@@ -69,6 +70,8 @@ A similar or identical biblical Hebrew term, read as "Nephilim" by some scholars
 # Abaddon
 
 [Alt text](img/1724475_767793743248368_1120289665_n.jpg)
+
+
 Abaddon’s Locusts Abaddon (ฮิบรู) หรือ
 Apollyon หรือ Apollion(กรีก) และ
 อีกชื่อหนึ่ง Abbaton Abaddon ซึ่งหมายถึงการทำลายล้าง หรือความหายนะ เป็นเทวดาตกสวรรค์ ที่อยู่ในนรกที่ลึกที่สุด (Angel of the bottomless pit) ที่ระบุไว้ในหนังสือ Book of Revelation เป็นที่รู้จักในนาม ผู้ทำลายล้าง (The Destroyer) 
