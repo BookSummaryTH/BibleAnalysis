@@ -1,12 +1,18 @@
-Book of Revelation
+# Book of Revelation
 
 
-Jesus Christ speaks to John - Revelation 1:9-16
+## Jesus Christ speaks to John - Revelation 1:9-16
 
 ```
-Verses 12-13 John heard the loud voice. He turned to see who was speaking. The gold lamp holders mean the 7 *churches (1:20). People use lamp holders so that the light will shine into dark places. That is the purpose of the *church. It is to show the light of God to the people. That light means the *gospel of Christ.
+Verses 12-13 John heard the loud voice. He turned to see who was speaking. 
+The gold lamp holders mean the 7 *churches (1:20). 
+People use lamp holders so that the light will shine into dark places. 
+That is the purpose of the *church. It is to show the light of God to the people. 
+That light means the *gospel of Christ.
 
-ยอนได้ยินเสียงพูด เขาจึงเห็นไปดู เขาเห็นโคมไฟทอง 7 อันนั้นหมายถึง 7 สิ่งที่สำเร็จมาแล้ว  ผู้คนใช้แสงจากโคมไฟนั้นไปยัง dark places   สิ่งนี้มีจุดประสงค์เพื่อ church เป็นแสงที่มาจาก God to people  
+ยอนได้ยินเสียงพูด เขาจึงเห็นไปดู เขาเห็นโคมไฟทอง 
+7 อันนั้นหมายถึง 7 สิ่งที่สำเร็จมาแล้ว  ผู้คนใช้แสงจากโคมไฟนั้นไปยัง dark places   
+สิ่งนี้มีจุดประสงค์เพื่อ church เป็นแสงที่มาจาก God to people  
 
 // เราจะมาค้นคว้าในภายหลัง
 
@@ -16,7 +22,7 @@ A man was moving among the lamp holders. He was like the Son of Man. This person
  
 The clothes that the man wore were those of a high priest. The *Lord Jesus is our high priest. He has paid for all our *sins. By his death, he has united us with God. And he is always with us to help us.
 
-การใส่เสื้อคลุมนั้นตีความได้ว่า
+การใส่เสื้อคลุมนั้นตีความได้ว่าเขาคือ hight priest  เขาจ่ายให้พวกเราทั้งหมด (sins) โดยความตาย  เขารวมเรากับพระเจ้าเข้าด้วยกัน  และเขาอยู่กับเราเสมอเพื่อช่วยเรา 
 
 ```
 
